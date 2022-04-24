@@ -4,6 +4,9 @@
 - 💞️ I’m looking to collaborate with you on your projects and bring the best out of it.
 - 📫 How to reach me, you can reach me at my professional social handle. 
 LinkedIn profile : https://www.linkedin.com/in/thomsonpenumala
+- I am also a music producer, I produe songs and release them on all the major streaming platforms. 
+- You can give a heads up to my youtube channel.
+YouTube channel : https://www.youtube.com/channel/UC5dDIn_HoPQFuaGKUVlqXTA
 
 
 <!---
