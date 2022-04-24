@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @thomson18
 - 👀 I’m interested in working with projects.
-- 🌱 I’m currently learning DevOps and am interested in Machine Learning in Production.
+- 🌱 I have a good experience in DevOps and am interested in Machine Learning in Production.
 - 💞️ I’m looking to collaborate with you on your projects and bring the best out of it.
 - 📫 How to reach me, you can reach me at my professional social handle. 
 
